@@ -2,6 +2,8 @@
 
 Some pixels from an old adventure, just because I liked it, I like it, and I will like it.
 
+Original idea by Inusawa, Taro, Mr. Haigo, Makorin, Ban Ban, Yoshikawa, Togawa, Hip Tanaka, S. Okada, G. Yokoi, and others. 
+
 These files are edited from www.pixilart.com.
 
 ## Level 1-1
